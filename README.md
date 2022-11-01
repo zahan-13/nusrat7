@@ -1,1 +1,1 @@
-# nusrat7.io
+# nusrat7.github.io
